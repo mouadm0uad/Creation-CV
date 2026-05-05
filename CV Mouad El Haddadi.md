@@ -6,12 +6,6 @@
 
 ---
 
-## OBJECTIF
-
-Représentant du service à la clientèle et associé aux ventes, fiable et axé sur la satisfaction client, avec plus de trois ans d’expérience en vente au détail, opérations de caisse et soutien à la clientèle. Reconnu pour le professionnalisme, l’autonomie et la capacité à évoluer dans des environnements dynamiques et orientés vers le travail d’équipe.
-
----
-
 ## PROFIL PROFESSIONNEL
 
 - Plus de 3 ans d’expérience combinée en service à la clientèle, vente et opérations de caisse  
